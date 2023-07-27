@@ -1,1 +1,1 @@
-Coding is challenging but doable
+Coding is challenging but manageable
